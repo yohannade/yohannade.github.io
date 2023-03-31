@@ -17,5 +17,3 @@ Tell me that it's not my fault, tell me that I'm all you want even when i break 
 
 <p style="color:midnightblue;">
 <h1 style="background-color:lightskyblue;">
-</body>
-</html>
