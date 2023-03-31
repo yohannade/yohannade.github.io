@@ -2,9 +2,9 @@
 
 <h1>when im needy:</h1>
 
-<p>I know I'm needy baby, and you're probably annoyed at me being needy <br />
-but I don't wanna lose this with you, so please; <br />
-TELL ME THAT YOURE STILL MINE!! <br />
+<p>I know I'm needy baby, and you're probably annoyed at me being needy__
+but I don't wanna lose this with you, so please;__
+TELL ME THAT YOURE STILL MINE!!__
 TELL ME THAT WE'LL BE JUST FINE, EVEN WHEN I LOSE MY MIND!!!
 Tell me that it's not my fault, tell me that I'm all you want even when i break your heart
 
